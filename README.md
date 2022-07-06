@@ -24,7 +24,7 @@
 ![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0017](https://user-images.githubusercontent.com/76640742/177195667-fd23e7e0-c267-4a5f-adb2-0beb74d575a2.jpg)
 ![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0018](https://user-images.githubusercontent.com/76640742/177195673-184c2679-5eff-4798-bb18-74a4f4cfe57d.jpg)
 ![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0019](https://user-images.githubusercontent.com/76640742/177195676-83d8f09f-c954-4790-a042-c5a68f224178.jpg)
-![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0020](https://user-images.githubusercontent.com/76640742/177195677-3889ebfa-6650-4ef6-8653-033aebeb7d29.jpg)
+![0608-회의-내용-업데이트-020](https://user-images.githubusercontent.com/76640742/177487798-201f2297-de26-41c1-b262-383a79a55e0f.png)
 ![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0021](https://user-images.githubusercontent.com/76640742/177195690-681cd11a-872e-4068-aff3-bddd54c4c352.jpg)
 ![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0022](https://user-images.githubusercontent.com/76640742/177195700-76ac2902-0afd-40be-b7f3-293c17aa4224.jpg)
 ![51790097-23bc-4f04-bd6b-91bfd5e653bc pdf-0023](https://user-images.githubusercontent.com/76640742/177195709-3db530fa-620b-4e6c-ae15-1e4051c2be3f.jpg)
